@@ -1,1 +1,1 @@
-Estudo de LGPD
+Estudo sobre LGPD
